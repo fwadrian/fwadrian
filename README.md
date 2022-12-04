@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fwadrian
+- 👀 I’m interested in Cyber Securirty about 20 years different positions. Currently I am a CISO a telecom operator in Turkey.
